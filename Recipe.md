@@ -1,0 +1,5 @@
+4 portions
+
+Pour the condensed milk and evaporated milk into a heavy-bottomed saucepan. Bring to low heat while stirring with a wooden spoon. Cook for about an hour until you can see the bottom of the pot. Take care to move properly so you do not burn. Remove from heat and immediately add the beaten egg yolks, in the form of a thread. Stir vigorously. Let cool and pour the majar into candy bowls.
+
+For the meringue, mix the port with the sugar in a small pot and bring to low heat until it dissolves. Raise to medium heat and bring to a boil, without stirring, until it forms a thick syrup. Beat the whites with an electric mixer and, when peaks form, add the hot syrup in a continuous thread, without turning off the mixer. You should get a firm meringue. Fill a sleeve with meringue and decorate the confectionery. Sprinkle with ground cinnamon.
